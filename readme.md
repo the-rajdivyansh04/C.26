@@ -7,5 +7,5 @@ why?
 .
 .
 Because I don't know anything else.
-By the way, a so called 2 min intant noodles but it takes more than 5 mins.
+By the way, a so called 2 min instant noodles but it takes more than 5 mins.
 
